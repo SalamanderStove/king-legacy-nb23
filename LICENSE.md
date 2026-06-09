@@ -1,4 +1,4 @@
-#  
+#  king legacy Script professional is the best king legacy Script, featuring aimbot and anti-ban. Safe and powerful for all your needs.
 
 
 
